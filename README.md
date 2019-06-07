@@ -1,0 +1,1 @@
+My saved settings for different applications.
